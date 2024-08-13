@@ -5,3 +5,6 @@
 - 📫 Email para contato joaogabrielsoaresdesiqueira@gmial.com
 - 😄 Pronouns: Dev
 - ⚡ Fun fact: Hello World!!!
+
+- nlbreoboreobroenbrenrer
+- grpgpeggbnprepreb
